@@ -7,3 +7,5 @@ Mi Nombre Es Juan Omar
 ## Para Entrar Em Contato Comigo ↓
 
 - juanfabian305@gmail.com
+
+![](https://media.tenor.com/L-vUDtAODvoAAAAM/military-solider.gif)
